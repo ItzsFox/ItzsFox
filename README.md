@@ -1,4 +1,4 @@
-### 👋 Hello there! I'm Fox, i have no idea what i'm doing here 😔
+### 👋 Hello there! I'm Fox, i'm starting to have an idea of what i'm doing here 😃
 
 ---
 
